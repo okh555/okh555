@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @okh555
+- 👀 I’m interested in Game
+- 🌱 I’m currently learning Software Engineering
+- 💞️ I’m looking to collaborate on Game Dev
+- 📫 How to reach me okh8522@gmail.com
